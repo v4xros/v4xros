@@ -1,3 +1,3 @@
-i love your smile
+im not young anymore, please be careful.
 
-![IMG_20250419_143503](https://github.com/user-attachments/assets/a800125a-03b0-44fd-b5ed-b1936207b4cd)
+![50ee992b-4ae2-4ee8-a4da-9888f666c489](https://github.com/user-attachments/assets/1371d995-aaa0-4063-88c1-e84ea5398d51)
