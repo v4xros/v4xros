@@ -1,3 +1,3 @@
-always w friends.
+@vanilsotae
 
-![50ee992b-4ae2-4ee8-a4da-9888f666c489](https://github.com/user-attachments/assets/1371d995-aaa0-4063-88c1-e84ea5398d51)
+<img width="1520" height="720" alt="Screenshot_2026-07-27-13-03-28-804_air com lunime gachalife" src="https://github.com/user-attachments/assets/d70ea0aa-f9e7-4964-a86b-aa976e34e595" />
